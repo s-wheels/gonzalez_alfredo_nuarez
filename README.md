@@ -1,2 +1,2 @@
-# gonzalez_alfredo_nuarez
+# Gonzalez Alfredo Nuarez
 Modern Art
